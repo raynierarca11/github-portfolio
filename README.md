@@ -11,3 +11,4 @@ Still on going
 
 ..
 Individualism
+Certainty
