@@ -10,3 +10,4 @@ Ongoing
 Still on going
 
 ..
+Individualism
