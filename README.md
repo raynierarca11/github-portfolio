@@ -12,3 +12,5 @@ Still on going
 ..
 Individualism
 Certainty
+
+Uncertain 
