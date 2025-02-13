@@ -14,3 +14,5 @@ Individualism
 Certainty
 
 Uncertain 
+
+Keep moving forward.
