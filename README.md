@@ -5,7 +5,7 @@ Hi I'm Raynier graduate of Bachelor of Science in Information Technology, majori
 Graduated 
 
 It's not yet done. 
-Ongoing
+Ongoing and 
 
 Still on going
 
