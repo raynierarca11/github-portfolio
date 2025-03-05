@@ -8,7 +8,7 @@ It's not yet done.
 Ongoing and 
 
 Still on going
-
+qweqweqwewq
 ..
 Individualism
 Certainty
