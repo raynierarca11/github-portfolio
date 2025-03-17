@@ -9,7 +9,7 @@ Ongoing and ongoing
 
 Still on going
 qweqweqwewqeeeeee
-..
+..e
 Individualism
 Certainty eee
 
