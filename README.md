@@ -13,7 +13,7 @@ qweqweqwewqeeeeee ee
 Individualism
 Certainty eeed
 
-Uncertain 
+Uncertainty
 
 Keep moving forward.
 yeah
