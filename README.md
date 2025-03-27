@@ -22,3 +22,5 @@ like
 nwnw
 bshshdhs
 bb
+
+kapooooy, duty naman ko karon, then sa saturday, march 28, 2025. friday subong, buwas saturday, 12-9 pm kay nagpaswap sched ko kay nag birthday si adi monday ti nag leave ako.
